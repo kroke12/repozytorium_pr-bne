@@ -3,3 +3,6 @@ plik do ćwiczeń
 
 
 sdakdakl;dklashjdfhajlshdfjklashjkf
+
+
+sadadasdadsa
